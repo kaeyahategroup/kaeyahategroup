@@ -5,7 +5,6 @@ not a sexual harasser!... just a loser!...
 
 <p align="center">
 kaeya's new patreon ; https://www.patreon.com/Heavenly_Inferno
-childe's patreon ; https://www.patreon.com/user?u=96718926
 </p>
 
 <p align="center">
