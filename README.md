@@ -14,6 +14,10 @@ SEXUALLY HARASSING my friend
 </p>
 
 <p align="center">
+<img src="https://files.catbox.moe/hgxc67.webp"/>
+</p>
+
+<p align="center">
 <img src="https://files.catbox.moe/e11w5x.png"/> </br>
 THIS is what a kaeya looks like. stay safe.
 </p>
