@@ -9,8 +9,8 @@ kaeya's new patreon ; https://www.patreon.com/Heavenly_Inferno
 
 <p align="center">
 dont feel bad for this fucking loser named kaeya, </br>
-because he didn't feel bad when "apologizing" for SEXUALLY. </br>
-HARASSING. my friend ! ^_^
+because he didn't feel bad when "apologizing" for SEXUALLY </br>
+HARASSING my friend ! ^_^
 </p>
 
 <p align="center">
